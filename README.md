@@ -1,3 +1,5 @@
+> **Laziness:** AI GENERATED CONTENT
+
 # Poster Maker For Digital Arts (Etsy, Shopify, etc..)
 
 ### Overview
